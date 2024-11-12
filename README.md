@@ -1,6 +1,6 @@
 👀 I’m interested in amateur radio astronomy
 
-My name is Giovanni (nickname = Jan  -  amateur radio call-sign = IV3GCP)
+My name is Giovanni (nickname = Jan ;  amateur radio call-sign = IV3GCP)
 www.cosmicnoise.org
 Amateur Radio Astronomy from Friuli-Venezia Giulia, Italy
 
